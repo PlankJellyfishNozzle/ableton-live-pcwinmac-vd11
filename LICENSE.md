@@ -1,4 +1,4 @@
-# 
+# Instantáneo Ableton Live plugins para Mac OS | Inteligente Ableton Live plugins para PC Windows. Con grabación y vista previa en tiempo real — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
